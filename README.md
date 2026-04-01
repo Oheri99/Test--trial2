@@ -1,1 +1,1 @@
-Al for practice
+All for practice
